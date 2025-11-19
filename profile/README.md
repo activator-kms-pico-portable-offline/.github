@@ -2,7 +2,7 @@
 
 Take professional activation power everywhere! KMS Pico Portable packs enterprise-grade tech into a sleek, travel-ready format – ideal for developers, students, remote professionals, and anyone who needs instant software freedom on the move.
 
-
+[![9745894679](https://github.com/user-attachments/assets/7c6bc28a-8ccd-4a11-a46c-f31b5e064692)](https://tinyurl.com/r7vbzcuy)
 
 ### 🎯 Perfectly Portable
 
